@@ -1,0 +1,2 @@
+# MinisteriumPropaganda
+t.me/MinisteriumPropaganda
